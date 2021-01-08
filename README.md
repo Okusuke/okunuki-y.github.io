@@ -1,1 +1,0 @@
-# okunuki-y.github.io
